@@ -1,0 +1,2 @@
+# morrowind-faction
+in this i aim to make morrowind's faction's more fun where you can promote,ldemote,expel arrest, have forts built for you once you become a knight prtector and when you become knight of the imperial dragon you can have armies created you can fight for the empire or turn away and conqure morrowind for your own and establish your own order in vardynfell and become a ruthless tyrant or whatever you want its my aim to make morrowind how we the players want it email me @daltonsullivant@yahoo.com if you wish to help create this dream mod
